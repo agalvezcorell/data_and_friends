@@ -1,5 +1,5 @@
 # Data And Friends
-## ¡Análisis de datos y cerveza gratis!
+## ¡Análisis de datos chocolate caliente 🍫 y dulces navideños🍬!
 
 
 ![cabecera](https://img.evbuc.com/https%3A%2F%2Fcdn.evbuc.com%2Fimages%2F188132289%2F149962790436%2F1%2Foriginal.20211118-094023?w=800&auto=format%2Ccompress&q=75&sharp=10&rect=0%2C14%2C1200%2C600&s=32bd21ff08f99a99fc182116cbfa4661)
